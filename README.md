@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Abi
-- 👀 I’m interested in evrything IT
+- 👀 I’m interested in everything IT
 - 🌱 I’m currently learning cybersecurity
 - 💞️ I’m looking to collaborate on proffessional skills
 - 📫 How to reach me abigailsodzi05@gmail.com
